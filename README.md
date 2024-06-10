@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @95djibi
 - 👀 I’m interested in par la cyber sécurité et data analyse 
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on dans ces domaines
 - 📫 How to reach me des experts pour m'accompagner 
 
 <!---
